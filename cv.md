@@ -2,7 +2,6 @@
 
 ## *Контакты*
 
-
 E-mail: silver.miriel@gmail.com
 
 ## *О себе*
